@@ -7,3 +7,5 @@
 <p align="center">
  <img width="117" height="157" alt="Untit" src="https://github.com/user-attachments/assets/6b400d1b-e948-42b6-b2f4-d7daf566ec98" />
                               i wnna die
+
+<img width="500" height="229" alt="From Klickpin com- Chic meal prep lunch ideas that make everyday moments look more intentional memorable and beautifully styled for anyone who lov" src="https://github.com/user-attachments/assets/545e7769-05df-4462-8ea3-e162bef23a89" />
