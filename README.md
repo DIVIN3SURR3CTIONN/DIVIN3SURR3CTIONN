@@ -1,7 +1,4 @@
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/cb96ad76-8db7-46fe-bdb4-95fa6e188b32"" alt="GitHub Profile Banner" width="100%">
+ <img width="193" height="139" alt="UN (1)" src="https://github.com/user-attachments/assets/7cc556ba-b58b-4ab1-b99a-6db021be0b17" />
+
 </p>
-
-
-
-
