@@ -37,7 +37,6 @@
 
 
 
-
 <img width="999" height="50" alt="IMG_9154" src="https://github.com/user-attachments/assets/2f1d966d-a3ae-4eb9-8b5a-2a2ca919ce53" />
 
 <img width="60000" height="4000" alt="blinkiesCafe-P7" src="https://github.com/user-attachments/assets/ff02d149-9e6d-46f3-b891-e4fc098431dc" />
