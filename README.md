@@ -29,7 +29,8 @@
 <img width="26" height="21" alt="yu6ds1" src="https://github.com/user-attachments/assets/be9e25ec-c03c-4c97-b691-3ec3421c638a" />
 <img width="20" height="20" alt="tumblr_e0801c0544e5a2f3d86c59e82f0d5641_36abf2c9_75" src="https://github.com/user-attachments/assets/b772237b-57e3-401d-815e-dcd0de567e8a" />
  my fav characterz izz.,,
- <img width="20" height="20" alt="tumblr_e0801c0544e5a2f3d86c59e82f0d5641_36abf2c9_75" src="https://github.com/user-attachments/assets/f70e544e-65d4-4cae-823a-04abfe64eb91" /><img width="26" height="21" alt="asi8pc" src="https://github.com/user-attachments/assets/31798eda-c2f2-4224-aed2-1bcef74307b3" />
+ <img width="20" height="20" alt="tumblr_e0801c0544e5a2f3d86c59e82f0d5641_36abf2c9_75" src="https://github.com/user-attachments/assets/f70e544e-65d4-4cae-823a-04abfe64eb91" /><img width="26" height="21" alt="asi8pc" src="https://github.com/user-attachments/assets/31798eda-c2f2-4224-aed2-1bcef74307b3" /><img width="50" height="40" alt="pippins-deltarune" src="https://github.com/user-attachments/assets/92d3b3cc-d66a-4bcd-9225-c70ca3ce3a70" />
+
 
 <img width="999" height="50" alt="IMG_9154" src="https://github.com/user-attachments/assets/2f1d966d-a3ae-4eb9-8b5a-2a2ca919ce53" />
 
