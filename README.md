@@ -34,5 +34,8 @@
 <img width="999" height="50" alt="IMG_9154" src="https://github.com/user-attachments/assets/2f1d966d-a3ae-4eb9-8b5a-2a2ca919ce53" />
 
 <img width="60000" height="4000" alt="blinkiesCafe-P7" src="https://github.com/user-attachments/assets/ff02d149-9e6d-46f3-b891-e4fc098431dc" />
+<img width="999" height="50" alt="IMG_9154" src="https://github.com/user-attachments/assets/2f1d966d-a3ae-4eb9-8b5a-2a2ca919ce53" />
+
 <img width="200" height="20" alt="blinkiesCafe-qh" src="https://github.com/user-attachments/assets/3e1b93e7-879c-4428-9f6c-bd9333c64f17" />
+
 <img width="200" height="20" alt="blinkiesCafe-46" src="https://github.com/user-attachments/assets/cf1b6f33-e525-4091-9a1f-b3b115dcc757" />
