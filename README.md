@@ -2,7 +2,8 @@
 
 
 
-<img width="45000" height="1150" alt="IMG_8365" src="https://github.com/user-attachments/assets/38549880-4953-4cee-ad84-77db638f3572" />
+<img width="9999" height="700" alt="tumblr_4ac08cc0c825c858ee16ceef955edd74_8825b851_400" src="https://github.com/user-attachments/assets/090545e3-778a-40f4-aa09-2bb1e0aee16f" />
+
 <img width="153" height="31" alt="IMG_0992" src="https://github.com/user-attachments/assets/c16679d4-7a67-4a2d-ad90-44fd445d5ef8" />
 <img width="51" height="18" alt="8zdpde" src="https://github.com/user-attachments/assets/903d7068-ee94-41a6-9087-c122cf7566c0" />
 
