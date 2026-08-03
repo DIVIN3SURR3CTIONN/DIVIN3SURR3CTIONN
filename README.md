@@ -1,3 +1,4 @@
-<img width="9999" height="780" alt="IMG_9165" src="https://github.com/user-attachments/assets/61469a08-0eda-47e0-a3fe-9c6abab260b3" />
+ $${\color{green}about.. me\ }$$
 
-wip
+$${\color{#b4dd1e} artist,\ }$$
+$${\color{gold}int,C+H!!\ }$$
