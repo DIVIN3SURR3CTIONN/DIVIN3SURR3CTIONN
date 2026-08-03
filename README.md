@@ -1,4 +1,4 @@
  $${\color{green}about.. me\ }$$
 
-$${\color{#b4dd1e} artist,\ }$$
-$${\color{gold}int, ✦◞˚C+H!!\ }$$
+$${\color{#b4dd1e} /artist🎨,/* 𓂃˚₊⊹\ }$$
+$${\color{gold}/int, ✦◞˚C+H!!/\ }$$
