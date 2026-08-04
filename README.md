@@ -1,4 +1,5 @@
-<img width="8698" height="500" alt="IMG_9154" src="https://github.com/user-attachments/assets/a56a421a-f547-44b9-8923-eec83db920e8" />
+<img width="970" height="50" alt="IMG_9165" src="https://github.com/user-attachments/assets/b7238091-410c-498c-88d5-b76ae7a89cd3" />
+
 
  $${\color{green}about.. me\ }$$$${\color{skyblue} .｡⋆୨୧˚\ }$$
 
