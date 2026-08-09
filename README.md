@@ -9,7 +9,7 @@
 
 
 
- $${\color{yellow}⁎⁺˳ \color{#ad3710}"w\color{#a15c13}e\color{#993e1a}_l\color{#7d5f0e}c\color{#ad3710}_o\color{#7d3e0e}m_e\color{#a3820b}!\color{#ad3710}" \color{yellow}⁎⁺˳ }$$
+ $${\color{yellow}⁎⁺˳ \color{#c43410}"w\color{#ba5b13}e\color{#87490b}_l\color{#a3730a}c\color{#87490b}_o\color{#a1450b}m_e\color{#a3820b}!\color{#c43410}" \color{yellow}⁎⁺˳ }$$
  
 
 
