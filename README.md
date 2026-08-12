@@ -1,3 +1,8 @@
+<p align="center">
+  <img width src="https://github.com/user-attachments/assets/9740e52b-0c41-4c8b-9ebe-c4c4fd70a0ab"" alt="Your Image Description" />
+</p>
+
+
 
 <p align="center">
   <img width src="https://github.com/user-attachments/assets/2b4c5e8c-d755-4c8e-ae7a-de95a413e45a"" alt="Your Image Description" />
@@ -29,4 +34,8 @@
 
 
 $${\color{gold}𓇼⋆.˚𓆝⋆\color{cyan}cho\color{pink}ose!\color{gold}𓇼⋆.˚𓆝⋆}$$
+
+<p align="center">
+  <img width src="https://github.com/user-attachments/assets/9740e52b-0c41-4c8b-9ebe-c4c4fd70a0ab"" alt="Your Image Description" />
+</p>
 
