@@ -13,16 +13,16 @@
 
 
 <a href="https://02qjjak.straw.page" target="blank">
-  <img src="https://github.com/user-attachments/assets/4613d181-9200-43ed-acdd-b283b6a6bd6c"" alt="hi" width="225"> 
+  <img src="https://github.com/user-attachments/assets/4613d181-9200-43ed-acdd-b283b6a6bd6c"" alt="hi" width="220"> 
 </a> 
 <a href="https://02qjjak.straw.page" target="blank">
-  <img src="https://github.com/user-attachments/assets/14dcef3d-8adc-4571-81fd-8eb773bec380"" alt="hi" width="225">
+  <img src="https://github.com/user-attachments/assets/14dcef3d-8adc-4571-81fd-8eb773bec380"" alt="hi" width="220">
 </a>
 <a href="https://02qjjak.straw.page" target="blank">
-  <img src="https://github.com/user-attachments/assets/ecd0603c-d93a-48c5-a5b7-c61d756e9078"" alt="hi" width="225">
+  <img src="https://github.com/user-attachments/assets/ecd0603c-d93a-48c5-a5b7-c61d756e9078"" alt="hi" width="220">
 </a> 
 <a href="https://02qjjak.straw.page" target="blank">
-  <img src="https://github.com/user-attachments/assets/9e19c35d-caac-46aa-899b-faf9adfdbe0f"" alt="hi" width="225">
+  <img src="https://github.com/user-attachments/assets/9e19c35d-caac-46aa-899b-faf9adfdbe0f"" alt="hi" width="220">
 </a> 
 
 
