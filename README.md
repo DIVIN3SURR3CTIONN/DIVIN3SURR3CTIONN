@@ -12,4 +12,7 @@
  
 
 
+<a href="https://02qjjak.straw.page" target="_blank">
+  <img src="https://github.com/user-attachments/assets/4613d181-9200-43ed-acdd-b283b6a6bd6c"" alt="hi" width="300">
+</a>
 
