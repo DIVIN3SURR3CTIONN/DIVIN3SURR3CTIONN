@@ -7,7 +7,7 @@
 </a> 
 
 
- $$\color{#454545}\text{c+h pls its free😂😂}\$$
+ $$\color{#454545}\text{c+h pls its free😂😂ノ}\$$
 
 
 
